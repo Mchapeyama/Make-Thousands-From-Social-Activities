@@ -1,0 +1,2 @@
+# Make-Thousands-From-Social-Activities
+As you probably know by now, empowr is launching its own coin (like Bitcoin) and, as our way of saying Thank you to the incredible community that got us here we’re giving the first coin to you – TOTALLY FREE!  I’m sending you $20 and a cryptocoin to try the all-new empowr.  I will be your personal Success Coach at your service for free 24/7, for you to earn and to collect more crypto coins from empowr.  Receive your $20 and other benefits by clicking here: www.empowr.com/Mashell4123
